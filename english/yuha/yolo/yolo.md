@@ -4,3 +4,5 @@ You only live once, so why not live it up and eat some [mushrooms.] (../../mushr
 
 Or why not dream and meditate and possibly enter a transcendence by trying to 
 [Enter-a-dim-reality](../../Enter-a-dim-reality/Dim_reality.md)
+
+YOU ONLY LIVE ONCE
